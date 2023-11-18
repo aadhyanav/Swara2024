@@ -11,3 +11,4 @@ For any questions or inquires, please email swaraucsd@gmail.com
 
 ### ABOUT UCSD PUSHPANJALI
 Founded in 2011, Pushpanjali is UCSD's national competitve Classical Indian dance team. 
+
