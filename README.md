@@ -9,4 +9,5 @@ Please donate to our go fund me! The costs are for providing food for the teams,
 https://www.gofundme.com/f/swara
 For any questions or inquires, please email swaraucsd@gmail.com
 
-### 
+### ABOUT UCSD PUSHPANJALI
+Founded in 2011, Pushpanjali is UCSD's national competitve Classical Indian dance team. 
