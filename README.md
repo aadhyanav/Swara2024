@@ -1,2 +1,2 @@
 # Swara2024
-Website for UCSD's national competition SWARA
+## Sunday, January 14th @ Mandeville Auditorium (UCSD)
